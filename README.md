@@ -1,4 +1,6 @@
-### Hi there 👋
+### Pretty cash money
+
+Need something done? Well I'm the guy to call ;3
 
 <!--
 **TheDarkThief/TheDarkThief** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
